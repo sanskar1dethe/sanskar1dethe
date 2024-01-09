@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **sanskar1dethe@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1GPUANCLiGnO6hqvvzcqZoAseWcJ6fta1/view?usp=sharing](https://drive.google.com/file/d/1GPUANCLiGnO6hqvvzcqZoAseWcJ6fta1/view?usp=sharing)
+- 📄 Know about my experiences [ https://drive.google.com/file/d/1JHO9FzBypNSyyv_JX3O028udzM1NZKQJ/view?usp=sharing]( https://drive.google.com/file/d/1JHO9FzBypNSyyv_JX3O028udzM1NZKQJ/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
